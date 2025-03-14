@@ -1,1 +1,1 @@
-For more information, please refer to my GitHub webpage! ===> https://msdgzk.github.io
+For more information, please refer to my GitHub page! ===> https://msdgzk.github.io
